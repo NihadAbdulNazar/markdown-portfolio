@@ -1,4 +1,4 @@
-list of my favorite things:
+list of my favorite things
 *🐱
 *💻
 *🙃
