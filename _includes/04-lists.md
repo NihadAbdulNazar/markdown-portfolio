@@ -1,8 +1,8 @@
 list of my favorite things:
-*:heart:
-*:+1:
-*:smile:
-*:sparkles:
+🌲
+😃
+✨
+🏠
 
 
 In order,these are my favorite hobbies:
